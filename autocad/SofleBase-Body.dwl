@@ -1,3 +1,3 @@
-mac
-Mac mini — Mac 
-Sunday, 26 June 2022  19:39:34 Moscow Standard Time
+zee
+zee’s Mac mini 
+Sunday, 7 August 2022  18:53:04 Moscow Standard Time
